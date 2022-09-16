@@ -1,1 +1,1 @@
-:wq:w:q
+:wq:w:qBruiBruh this is too bruh for me€kb€kb€ü€kb€ü€kb€kb€kb€kb€ü€kb€ü€kb€ü€kb€ü€kb€kb€kb€kb€kb€kb€kb€kb€kb€kb€kb€kb€kb€kb€kb€kb€kb€kbCim€kb€kb€kbVim is better :)€ýa:q!
